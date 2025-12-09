@@ -1,0 +1,1 @@
+(bonus damage to crowd controlled enemies)hitting a **single enemy** who is currently under a control effect (like stun or slow) so a stunned enemy when attacked while stunned takes more damage

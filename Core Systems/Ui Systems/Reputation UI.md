@@ -1,0 +1,10 @@
+- **ID tags** are inventory items showing name, image, and faction/backing.
+- Work like in ghost of tsuhima by killing or defeating people or completing sub-quest u gain reputation and there are tiers of it where each id tag looks different
+- **Kill/defeat history** is **not on the tag**; it only affects dialogue and gameplay.
+- **Reputation levels/designs**:
+    - **Wood** → low reputation
+    - **Metal** → medium reputation
+    - **Gold** → very high/famous reputation
+- **All characters use them**, including NPCs—like actual IDs.
+- Higher tiers unlock perks: discounts, special areas, taverns, and unique dialogue options.
+- Tags act as **visual badges**, while the game tracks reputation and actions separately to drive interactions.
