@@ -1,0 +1,1 @@
+[[The Coin Counters Han(양포한)]]  and their city [[Golden Ledger City]]

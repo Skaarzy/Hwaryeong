@@ -1,0 +1,1 @@
+[[The Spear Fishers Baek (해창백가)]] with their capital [[Saltspear Harbor]]
