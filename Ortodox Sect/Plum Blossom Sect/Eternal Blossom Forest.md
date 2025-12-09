@@ -1,0 +1,7 @@
+Plum Blossom Pavilion 
+
+Its located at the bottom of the dividing peaks but its most important part is the eternal blossom forest which is spread all around that side of the mountain and is the sacred forest of the plum blossom sect who protect the forest whit all their might it is said that the forest gives the sects disciples special qi that grants them faster growth and stronger qi in general
+
+The **Plum Blossom Sect** is located at the base of the **Dividing Peaks**, but their true treasure lies in the **Eternal Blossom Forest** that spreads across the mountainside. This sacred woodland is the **only place in the world where plum blossom trees still grow**, making it irreplaceable precious.
+The sect **protects the forest with all their might**, as it's said that the **Eternal Blossom Forest grants disciples special qi** that allows for **faster cultivation growth and stronger qi development** in general. This makes their territory not just a home, but a vital cultivation resource that gives the sect a significant advantage.
+The forest's unique properties explain why the Plum Blossom Sect is so fiercely protective of their domain - losing the Eternal Blossom Forest would mean losing their sect's primary source of power and potentially the last plum blossoms in existence.
