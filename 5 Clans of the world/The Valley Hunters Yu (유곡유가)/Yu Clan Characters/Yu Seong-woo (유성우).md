@@ -1,0 +1,4 @@
+Yu Seong-woo (유성우) - The Wildshade
+Abandoned in the dense forests of Yugok Province by his parents who were fleeing ruthless bandits, the ancestor of the Valley Hunters Yu was left to survive alone. Growing up in the wild, he raised himself, becoming something neither fully human nor fully beast—a half-animal, half-human guardian shaped by the unforgiving wilderness. Over many years, he hunted down and killed every bandit in the entire province; some say the number reached tens of thousands, others claim hundreds of thousands. As the protector of the land, he provided for the scattered villages by hunting wild animals and fiercely defended them from invaders who threatened their peace. Feared more than any deity, his presence was a shadow that kept evil at bay. Before his time ended, he founded the Yu clan, a group sworn to be the eternal guardians of the province, watching over the land long after he was gone.
+
+![[Yu Seongwoo.jpg]]

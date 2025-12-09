@@ -1,0 +1,7 @@
+**Description:** A weathered 60-year-old veteran who's spent his entire life serving the Baek clan despite lacking their bloodline qi. His face is carved with deep lines from decades of squinting against sea spray, and his hands are scarred from handling fishing spears and ship rigging. Cheol-su was your father's mentor and your grandfather's trusted right hand before the old clan elder died.
+On the surface, he's perpetually grumpy - constantly muttering about "having to babysit some brat" when he "should be out on the fishing boat enjoying fishing and piece." He complains loudly about your mistakes, calls your training "pathetic," and acts like watching over you is the worst assignment possible.
+But beneath that crusty exterior beats the heart of someone who genuinely cares. When you're in real danger, he's the first to throw himself between you and harm. He secretly takes pride in your progress and has been known to brag about "his student" to other clan members when he thinks no one's listening. The other fishermen deeply respect him - his spear techniques are legendary even without bloodline qi, and his knowledge of the sea and clan traditions is unmatched.
+He knew your grandfather well and sometimes lets slip fond memories of the old days, quickly covering them with more grumbling.
+
+![[Baek Cheol-su (백철수) Crusty Cheol 1.jpg]]
+![[Baek Cheol-su (백철수) Crusty Cheol.jpg]]

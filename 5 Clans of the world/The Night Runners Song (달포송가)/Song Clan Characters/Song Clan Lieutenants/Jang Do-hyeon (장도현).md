@@ -1,0 +1,6 @@
+**Jang Do-hyeon (장도현) - The Pale Ghost**
+Master of all finances derived from illegal sources, Jang Do-hyeon is unparalleled in his craft of legitimizing the clan's illicit income and distributing it throughout the organization. Handpicked by Lee Joon-ho for his brilliant yet unconventional mind, Do-hyeon's methods of money laundering are as peculiar as they are flawless.
+His position is critical to the clan's survival. The Jeong Kingdom scrutinizes the origin of wealth with meticulous care—if they discovered the Song Clan's fortune stems from illegal trade, all ties would be severed immediately. Do-hyeon ensures this never happens, weaving complex financial networks that render black market profits indistinguishable from legitimate commerce.
+Unlike most clan members, Do-hyeon possesses no martial skills and carries no weapon—only an ornate folding fan used purely for decoration. He presents himself as a refined nobleman: impeccably dressed, eloquent in speech, and graceful in manner, despite having no noble blood. His knowledge in finance is so astonishing that even the elders seek his counsel on financial matters, treating him with the respect reserved for those born to privilege.
+![[Jang Do-hyeon main.jpg]]
+![[Jang Do-hyeon.jpg]]
