@@ -1,0 +1,3 @@
+While MC is in his clan after the year 15 tutorials there are sub quests specific for each clan but all being around the weird things happening with a elder or parent of the MC taking the MC around to help complete those things while some even being a standalone quests which are simpler like go gather herbs or wood or something similar but the main base of the sub quests starts simple as like go gather things or hunt or whatever in all those sub quest in couple there are weird things happening but all have normal explanations like shipwreck or animal attack and so on
+
+[[Baek Clan Ch.1 Whisper of Chaos]]

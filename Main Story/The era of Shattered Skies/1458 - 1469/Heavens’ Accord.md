@@ -1,0 +1,33 @@
+**Chapter VII: Heavens' Accord (1467)**
+
+Four years after his escape, the prince had survived through constant movement and vigilance. Now fifteen years old, he had worked odd jobs in remote villages, trusting no one, always watching for Dong Tak's agents. But during those years of hiding, he had learned something that shattered everything Kim Jae-hwan had taught him: his father didn't flee. Emperor Gwangheon had died fighting, defending the capital against the rebels. The stories of cowardice were lies, and that realization changed everything.
+
+"I hated my father," the prince admitted to himself in quiet moments. "Kim Jae-hwan taught me to see him as weak, corrupted by foreign influences, unworthy of the throne." But even through years of manipulation, the prince knew one fundamental truth about his father's character: Emperor Gwangheon would never run from battle. He had been a warrior before he was an emperor, and warriors didn't abandon their posts. "He was murdered. They all lied to me. And I need to avenge him."
+
+The prince made a dangerous journey to sect alliance territory, moving through regions where Dong Tak's influence remained weak. He requested audience with the Martial Council, revealing his identity and his story to people who had every reason to distrust imperial blood. His proposal was direct: "Help me avenge my father's death and restore the throne. In exchange, I will lift all laws against the sects. You will have complete autonomy and formal alliance with the empire. No more persecution, no more restrictions—true partnership."
+
+The sect elders convened to debate this unexpected offer. Some argued it wasn't their concern: "This is the empire's internal problem. Why should we spend our resources and risk our people for a dynastic dispute?" Others countered with hard reality: "Dong Tak already hunts us, blames us for the empire's failures in his propaganda. He's made himself our enemy whether we choose to fight or not." Still others questioned the prince's sincerity: "What if the boy is lying? What if this is an elaborate trap to draw us into open conflict?The Iron Fist Sect's continued propaganda work complicated matters further. Their spreading of Dong Tak's anti-sect lies made some elders hesitate—attacking now might seem to confirm the usurper's accusations that sects destabilized the empire"
+
+The prince presented what little evidence he possessed—Kim's family seal, fragments of documents, and his own testimony about the escape. The debate raged for weeks as the Martial Council weighed the risks against potential rewards. Meanwhile, they conducted their own investigation, seeking independent verification of the prince's claims and assessing whether he could be trusted to honor his promises.
+
+While the sects deliberated, Dong Tak escalated his efforts on two fronts. He poured even more resources into finding the heir, offering staggering amounts of gold for information about the missing prince. But he also shifted strategy, recognizing that military search alone wouldn't secure his position. He began spreading new propaganda through his hired agents, including the Iron Fist Sect—an unorthodox martial arts school that Kim Jae-hwan had originally recruited alongside Dong Tak to spread rumors and recruit supporters during the initial rebellion.
+
+The Iron Fist Sect had never been intended as mercenaries for killing, but rather as a grassroots organization to move through communities where imperial officials couldn't effectively operate. Now Dong Tak used them for the same purpose, spreading his message: "The sects are to blame for the empire's economic collapse. They hoard resources, destabilize trade routes, and harbor traitors against the throne." The people, desperate and suffering under Dong Tak's mismanagement, started to believe these lies. Each new convert to his propaganda strengthened his position, making opposition seem not just dangerous but treasonous.
+
+The usurper's campaign proved devastatingly effective. His power and influence grew as he simultaneously hunted the prince and poisoned public opinion against the sects. By blaming external enemies for internal failures, he deflected attention from his own corruption and incompetence. The Iron Fist Sect moved through markets and villages, their martial credentials lending credibility to imperial propaganda that might otherwise have been dismissed.
+
+After long deliberation, the Martial Council reached their decision. They would help the prince, but not blindly. First, they needed concrete evidence—proof of Emperor Gwangheon's true death, documentation of Dong Tak's lies, and verification of the conspiracy that had brought the usurper to power. They began their own covert investigation, sending skilled agents to the capital and surrounding provinces to gather the truth behind the propaganda.
+
+The alliance between heir and sects was forged in mutual need and calculated risk. The prince gained powerful allies who could actually challenge Dong Tak's military forces, while the sects gained a legitimate figurehead who could restore their legal standing and end the persecution they faced. But both sides understood that the real work was just beginning. They needed evidence that would convince not just themselves but the empire's population, and they needed to counter Dong Tak's increasingly effective propaganda machine before it turned all of Joseon against them.
+
+**Key Characters:**
+
+- The Prince (age 15): Fugitive heir seeking vengeance and restoration
+- The Martial Council: Sect leadership weighing risks of intervention
+- Emperor Dong Tak: Usurper escalating both manhunt and propaganda
+- The Iron Fist Sect: Unorthodox martial school spreading Dong Tak's lies
+- Sect Investigators: Agents gathering evidence of imperial crimes
+
+**Consequences:** The alliance between prince and sects created a legitimate threat to Dong Tak's rule by combining royal bloodline with martial power. The prince's maturation from manipulated child to purposeful young man showed his potential as a leader, while his willingness to grant sectarian autonomy demonstrated pragmatic thinking that contrasted sharply with previous imperial attitudes. Dong Tak's use of the Iron Fist Sect to spread anti-sect propaganda created a civil war within the martial arts world itself, dividing orthodox from unorthodox and making the coming conflict more complex than simple restoration versus usurpation.
+
+Retry

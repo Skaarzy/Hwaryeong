@@ -1,0 +1,15 @@
+These should be  the parts that are in the cut scenes or document more of a story than a visual experience but still mayor events should have a cut scene
+
+The whole game is divide into two parts which are completely different and focus on different things :
+### Part 1 Chronicles of the Eternal War
+This part focuses on the eternal war which is the story of demons and the war between them and cultivators, the demons mostly focus on occupying/killing the king as the previous king who is the father of current one tortured and experimented on the now Heavenly demon who has mixed blood of a human and a deity which is also why he was tortured, the story focuses on the war specifically how the demons suddenly attacked and almost one immediately and how the death of the king stopped them and made them retreat because of the Heavenly demons command who finally accomplished his goal.Key points of this story :
+
+- Introduction scene of the deity giving a lay of the lands
+- Tutorial phase of Mc from age 8 up to 21 where player learns the basics
+- First mayor choice of which faction to join , this will give the player a unique perspective and martial arts depending on which they choose
+- Mc being expelled from the faction because of his fast learning and success , here there are a lot of sub quests and the player learns about that specific faction and the important npcs in it and its politics
+- After the mc leaves they have the open world to explore with them exploring each province and its faction with unique quests in each where the mc meets important npcs of that faction/province which will later matter , most quests should be focused on a large reason with there being subqests that lead to a outcome of the large reason.
+- After mc completes these explorations the main quest continues with the next mayor choice of when the demon war starts and the mc must decide where to go , back to the clan he was born in or back to the faction he chose after leaving the clan, this decide which battlefields the mc will fight at and which bosses he will face, this part takes years so it will jump from one year to another with there being almost aid like army reinforcement to other faction which is also decide by the choice of where to return comes in with different factions sending the mc to different provinces in which the mc also fights in battlefields and has subquests like saving somebody or breaking a demonic army force and so on also here they meet those who they help when the mc explored.
+- After the demon war comes the consequences and the rebuilding , if mc gained enough reputation points and joined a certain faction the mc can go with the masters and strong warriors to in essence defeat and imprison the demon king , if the mc didn't then they get news of the heavenly demons surrender in a ink like story scene.
+
+### Part 2 Sealed fate of golden empuire 
