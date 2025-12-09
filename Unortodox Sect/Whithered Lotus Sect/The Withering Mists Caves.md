@@ -1,0 +1,6 @@
+The Steam Lotus Halls
+
+The Withered Lotus Sect's main stronghold lies deep within the **Withering Mist Caves** - a treacherous cave system filled with scalding steam and crushing pressure that would incapacitate or kill most intruders. The sect's fortress, the **Steam Lotus Halls**, is built into these natural chambers.
+**Grandmother Ash**, the sect's leader, developed a special breathing technique that allows survival in these hostile conditions. Only those personally trained by her can enter safely without succumbing to the heat and pressure. This makes the caves nearly impregnable - no need for heavy guards when the environment itself is the ultimate defense.
+The most haunting detail is that some believe **Grandmother Ash hasn't left the caves since she was 10 years old** - suggesting she's been sealed away in this steamy underground world for decades, perhaps even growing up entirely within the mists, which would explain her mastery over such a deadly environment.
+This creates an almost mythical figure - a sect leader who's become one with her toxic domain, training female poison warriors in the very depths that would kill anyone else. The Steam Lotus Halls must be an eerie place of beautiful but deadly architecture, carved into cave walls with steam rising from natural pools where the warriors practice their arts.

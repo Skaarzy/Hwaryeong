@@ -1,0 +1,3 @@
+- Seomin (서민) = commoners, ordinary people, the masses
+- Basic workers, laborers, small shopkeepers
+- Simple housing, cramped conditions

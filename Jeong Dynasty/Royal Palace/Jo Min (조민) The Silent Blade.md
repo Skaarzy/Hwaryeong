@@ -1,0 +1,17 @@
+Jo Min (조민) - The Silent Blade
+**Biseogwan (비서관, 祕書官)** — _Imperial Secretary**:   (1276 - 1504)
+Died: 1504 (killed in rebellion)
+
+**Role:** Royal Consultant, Sword Saint, Assistant to the Emperor  
+**Appearance:** Jo Min carries himself with the grace of a true master. His long, thin sword, both elegant and flexible, is his constant companion. The blade bends with an almost unnatural fluidity, allowing him to create wind and air slashes or to twist it around his opponent’s weapons. His attire is simple yet refined, matching his formal role as the emperor's assistant. Though he exudes a quiet composure, his eyes reflect a deep intelligence and focus, always alert and calculating. Jo Min’s movements are deliberate and precise, a reflection of both his martial prowess and disciplined mind.
+
+**Personality:** Jo Min maintains a formal and stiff demeanor when in the presence of the emperor or during official matters. As the emperor’s assistant, he understands the gravity of his role, and his words are always measured, his actions deliberate. His formality is a sign of his respect for the throne and his sense of duty, often acting as a voice of reason when others may not have the courage to speak up. However, when away from the emperor or in more casual settings, Jo Min sheds his rigid exterior, revealing a calmer, more approachable side. His usual formalities are replaced by a more relaxed, even gentle, nature. He’s a man who listens more than he speaks, and his calm demeanor makes him a steady presence for those around him.
+
+Though loyal to the emperor, Jo Min’s position allows him the rare privilege of acting as an adversary to the throne when necessary. He does not hesitate to challenge the emperor’s ideas or decisions if he believes it to be in the Jeong Dynasty’s best interest. His ability to speak candidly on behalf of the emperor allows him to serve as an important intermediary, helping to balance royal orders with the broader needs of the Jeong Dynasty. This nuanced position has earned him respect, and at times, even fear—though he is more often seen as a wise advisor who helps guide the emperor’s hand with careful counsel.
+
+**Abilities and Martial Arts:** Sainchamsageom (Four-Tiger Sword) which is forged when the year, month, day, and hour of the Tiger align. Regarded as the strongest spiritual weapon was used by in shamanic rituals to slay demons. The sword which can amplify the power of qi of the wielder has and once the wielder imbued his qi into it , the sword becomes only their and nobody else can wield it , also the wielder gains ability to control the sword while its in air to some distance and time.Also the sword carries a ultimate techniques inside itself as the star alignment on it can be activate via the wielder qi and multiply the sword into hundreds of qi swords of same design  that are floating and each can be controlled the same way as the original  but this drains a lot of the users qi and cant be used many times as it also weaken the structure of the sword.
+As an Royal Consultant and assistant to the emperor, his martial arts are always secondary to his duties. However, when called upon to fight, his swordsmanship reflects a deep understanding of both his opponent and his surroundings. He is more than just a consultant—he is a warrior who has honed his skills to near perfection, and his calm, methodical nature makes him a formidable adversary when the time comes.
+
+![[Jo Geom.jpg]]
+![[Jo Geom 1.jpg]]
+![[Sainchamsageom Jo Min sword.jpg]]

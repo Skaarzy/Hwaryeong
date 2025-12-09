@@ -1,0 +1,3 @@
+- Jungmin (중민) = middle class, petty bourgeoisie
+- Successful merchants, skilled craftsmen, lower-level clerks
+- Comfortable but not wealthy housing
